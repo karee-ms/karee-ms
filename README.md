@@ -1,8 +1,8 @@
 
-## 🚀 About Me
+## 🚀 About Me :d
 I'm senior sofware developer and performance tester
   
-# Hi, I'm Kathy! 👋
+# Hi, I'm Kathy! 👋 🕊️
 
   
 ## 🛠 Skills
